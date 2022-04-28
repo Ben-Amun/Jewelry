@@ -1,1 +1,1 @@
-# Jewelry
+# Shop the official Ben-Amun store online. Leading Fashion Jewelry of NYC – Explore Ben-Amun’s timeless & modern collection of earrings, bracelets, necklaces, pins, brooches, hair ornaments, and more. Designed by Isaac Manevitz, all Ben-Amun jewelry is made by artisans in New York City. Explore our jewelry today!
